@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Welcome to My BLOG 👋
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Looking forward to recording and sharing my growth
